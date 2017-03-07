@@ -1,0 +1,2 @@
+# shizhiBuyView
+> Download not allowed
